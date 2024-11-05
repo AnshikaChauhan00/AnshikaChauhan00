@@ -6,8 +6,8 @@ Hi, I’m @AnshikaChauhan
 
 💞️ I’m looking to collaborate on projects related to data analysis, machine learning, and predictive modeling
 
-📫 How to reach me emial(chauhananshika2525@gmail.com)
+📫 How to reach me chauhananshika2525@gmail.com
 
-😄 Pronouns: she/her
+
 
 
